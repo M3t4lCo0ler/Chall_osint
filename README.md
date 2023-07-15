@@ -1,4 +1,4 @@
-# Chall_szint
+# Chall_ozint
 
 it's a readme nothing more basic?
 
