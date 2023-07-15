@@ -3,5 +3,3 @@
 it's a readme nothing more basic?
 
 In any case I love dragon ball z cooler especially its metal version in blue which is really stylish
-
-Why not Instagram? metal coolers are not very common there
